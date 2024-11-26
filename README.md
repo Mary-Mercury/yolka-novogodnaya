@@ -43,3 +43,7 @@
 ![image](https://github.com/user-attachments/assets/771fe49a-a28d-4d58-aae6-6970c3ce6cb6)
 
 А вот и сама елочка, которая должна получиться
+
+
+![image](https://github.com/user-attachments/assets/e665c5a9-ff19-43b5-b10a-feb2a9629b1c)
+
